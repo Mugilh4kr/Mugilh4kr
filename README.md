@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Mugilh4kr+
-- IM currently persuing BE(cyber security)
+- IM currently pursuing BE(cyber security)
 - 
 
 <!---
