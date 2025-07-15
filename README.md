@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Mugilh4kr+
-- IM currently pursuing BE(cyber security)
+- IM currently pursuing BE(cyber security)in Dhanalakshmi Srinivasan college of engineering and technology 
 - 
 
 <!---
